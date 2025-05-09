@@ -4,7 +4,7 @@ Hallooo! I'm trashcan08. I enjoy sending Kerbals to the mun :D
 I play the trumpet and the euphonium :)
 
 RAAAAAAAAAAAAHHH \
-My high score in block blast is **2**. Crazy right? :p 
+My high score in block blast is **2**. Crazy right? :p ![](https://i.imgur.com/jsvJlpQ.jpeg)
 
 
 
