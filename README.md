@@ -4,7 +4,7 @@ Hallooo! I'm trashcan08. I enjoy sending Kerbals to the mun :D
 I play the trumpet and the euphonium :)
 
 RAAAAAAAAAAAAHHH \
-My high score in block blast is **2**. Crazy right? :p
+My high score in block blast is **2**. Crazy right? :p \\
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=trashcan08&show_icons=true&theme=tokyonight&border_radius=10)]()
 <!--
 **trashcan08/trashcan08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
