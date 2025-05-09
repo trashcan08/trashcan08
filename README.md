@@ -3,7 +3,7 @@
 Hallooo! I'm trashcan08. I enjoy sending Kerbals to the mun :D
 I play the trumpet and the euphonium :)
 
-RAAAAAAAAAAAAHHH
+RAAAAAAAAAAAAHHH \
 My high score in block blast is **2**. Crazy right? :p
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=trashcan08&show_icons=true&theme=tokyonight&border_radius=10)]()
 <!--
