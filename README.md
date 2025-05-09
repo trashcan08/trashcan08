@@ -1,10 +1,12 @@
 ## Hi there 👋
 
-Hallooo! I'm trashcan08. I enjoy sending Kerbals to the mun :D
+Hellooooooo!! I'm trashcan08. I enjoy sending Kerbals to the mun :D
 I play the trumpet and the euphonium :)
 
 RAAAAAAAAAAAAHHH \
-My high score in block blast is **2**. Crazy right? :p ![](https://i.imgur.com/jsvJlpQ.jpeg)
+My high score in block blast is **2**. Crazy right? :p 
+
+<img src="https://i.imgur.com/jsvJlpQ.jpeg" width="165">
 
 
 
