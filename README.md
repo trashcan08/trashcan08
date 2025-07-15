@@ -1,6 +1,7 @@
 ## Hi there 👋
 
-Hellooooooo!! I'm trashcan08. I enjoy sending Kerbals to the mun :D
+Hellooooooo!! I'm trashcan08. I enjoy sending Kerbals to the mun :D \
+My favourite piece is Mr Jums from Three Brass Cats by Chris Hazell! \
 I play the trumpet and the euphonium :)
 
 RAAAAAAAAAAAAHHH \
